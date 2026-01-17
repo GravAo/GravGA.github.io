@@ -1,3 +1,3 @@
-- 校级一等奖学金, 2022.  
+- National Scholarship, 2025.  
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- Outstanding Graduation Thesis, Southern University of Science and Technology, 2023. 
